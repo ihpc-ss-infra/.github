@@ -1,2 +1,2 @@
 # .github
-Public profile
+Private organisation. Contact Nasri for access.
